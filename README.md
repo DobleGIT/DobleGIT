@@ -1,6 +1,7 @@
 
 
-![DobleGIT (2)](https://github.com/DobleGIT/DobleGIT/assets/61386439/a7703202-e143-4239-a569-3c6d3935be8a)
+
+![DobleGIT (3)](https://github.com/DobleGIT/DobleGIT/assets/61386439/33e39443-546d-41cc-b81a-c1b9db20e0b7)
 
 ### Hi here I`m DobleGIT
 
