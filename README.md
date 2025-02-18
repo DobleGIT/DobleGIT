@@ -15,5 +15,5 @@ Here are some details to help you get to know me better:
 * 🔭 I'm currently working at Telefonica Tech.
 * 🌱 I'm continuously learning more about Cybersecurity.
 * 🤔 I'm open to collaboration and looking for help with various projects.
-* ⚡ Fun fact: The image above is a reflection of me.
+
 
